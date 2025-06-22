@@ -1,0 +1,1 @@
+# Kelas-NDBI-NDVI-LST-pada-Tahun-2018-2021-2024-di-Jakarta-Selatan
